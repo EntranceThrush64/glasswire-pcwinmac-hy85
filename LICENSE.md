@@ -1,4 +1,4 @@
-# 
+# Atualizado GlassWire plugins para Mac OS | Automático GlassWire plugins para PC Windows. Com gerenciamento de quarentena e herança de senhas — otimizado para máximo desempenho em cada plataforma.
 
 
 
